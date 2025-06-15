@@ -1,0 +1,2 @@
+# PRIVACY_POLICY
+隐私协议保存
